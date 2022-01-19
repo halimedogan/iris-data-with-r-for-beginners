@@ -1,1 +1,1 @@
-![indir (1)](https://user-images.githubusercontent.com/74882773/150152455-4bae8b6b-227c-43f2-9485-a34a307c67ba.jpg)
+![indir (2)](https://user-images.githubusercontent.com/74882773/150152829-25f815fd-2b21-4718-9b43-c628a59023c8.jpg)
